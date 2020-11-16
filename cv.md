@@ -1,4 +1,3 @@
-# Resume of Gabrus Eduard
+# **Resume of Gabrus Eduard**
 
-### The purpose of the summary: 
-applying for a software developer position
+### The purpose of the summary: applying for a software developer position
