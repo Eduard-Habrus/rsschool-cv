@@ -1,2 +1,3 @@
-# Resume of Gabrus Eduard Nikolaevich
-## The purpose of the summary
+# Resume of Gabrus Eduard
+
+### The purpose of the summary
