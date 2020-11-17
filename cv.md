@@ -17,7 +17,7 @@ ___
 My desire and aspiration gives me the opportunity to become a part of EPAM as a student and later as a junior software developer.*
 
 
-**Skills:** *Basic HTML, CSS, JavaScript, version control system - Git and GitHub.*
+**Skills:** *Basic HTML, CSS, JavaScript, Version Control System - Git and GitHub.*
 
 **Experience:** 
 *2018 - 2020 the State Forensic Expertise Committee, forensic expert;*
