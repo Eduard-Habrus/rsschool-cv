@@ -22,7 +22,9 @@ My desire and aspiration gives me the opportunity to become a part of EPAM as a 
 **Experience:** 
 *2018 - 2020 the State Forensic Expertise Committee, forensic expert;*
 
-*2013-december - 2018 service in the Ministry of the Interior;*
+*2013-december - 2018 Service in the Ministry of the Interior;*
+
+*2012-May - 2013-November Service in the armed forces of the Republic of Belarus*
 
 *2012-March - 2012 - May Minsk Wheel Tractor Plant, turner.*
 
