@@ -31,3 +31,4 @@ My desire and aspiration gives me the opportunity to become a part of EPAM as a 
 **Education:** *higher education (faculty of Investigators*, *Academy of the Ministry of Internal Affairs of the Republic of Belarus (2014-2018))* 
 
 **Languages:** *Russian, English (Beginner)*
+   
